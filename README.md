@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @LI-JAA
-- 👀 I’m interested in reading books
-
-
-- 📫 How to reach me No way
+- 📫 How to reach me: No way
 - 😄 Pronouns: leo
 
 
